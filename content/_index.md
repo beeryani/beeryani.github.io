@@ -1,3 +1,3 @@
 #### Hello 👋
 
-My name is Pratyush. I am an engineer who is learning to code.
+My name is Beeryani. I am a suit flavoured hacker.
